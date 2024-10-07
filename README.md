@@ -1,6 +1,6 @@
 # Boston
 
-Link: https://gowthammca23.github.io/Boston/
+Link: https://beskijoseph.github.io/botson-main/
 
 BOSTON
 
